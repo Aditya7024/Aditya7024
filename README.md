@@ -1,4 +1,4 @@
-- 👉 Hi, I’m Aditya Singh
+- 👉 Hi, I’m Aditya 
 - ⚙️ I’m interested in Data Science , AI & ML 🤖
 - 📫 How to reach me phoniex6996@gmail.com
 
